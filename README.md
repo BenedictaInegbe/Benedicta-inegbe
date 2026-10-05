@@ -1,6 +1,6 @@
 Benedicta Inegbe | Project & Program Manager
 
-Project & Program Manager based in Lagos, Nigeria, with 8+ years across project delivery, contract administration, executive reporting and team leadership.
+Project & Program Manager based in Lagos, Nigeria, with 8+ years across contract management, project delivery, executive reporting and team leadership.
 
 Portfolio: https://benedicta-inegbe.github.io LinkedIn: https://linkedin.com/in/benedicta-inegbe-3b2186150 Email: inegbebenedicta@gmail.com
 
