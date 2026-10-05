@@ -10,5 +10,5 @@ Process improvement, documentation and reporting
 Contract and compliance support
 Training program design and tracking
 
-Tools
+Tools:
 Microsoft Project, Primavera, Trello, Notion, Airtable, Zoho, Hubstaff, Google Workspace, Microsoft Office
